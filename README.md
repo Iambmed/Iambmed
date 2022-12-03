@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Rym aka @Iambmed
+- 👨🏻‍💻 Advanced Technologies Engineering student.
